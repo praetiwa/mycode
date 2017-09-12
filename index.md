@@ -3,4 +3,4 @@
 ชื่อเล่น เหมียว อายุ 21 ปี
 ปัจจุบันกำลังศึกษาที่มหาวิทยาลัยเนชั่น
 คณะเทคโนโลยีสารสนเทศ สาขาคอมพิวเตอร์ธุรกิจ
-
+<a href="http://www.mx7.com/view2/A6SepZCW44wFtwOg" target="_blank"><img border="0" src="http://www.mx7.com/i/2e3/qQVAY4.jpg" /></a>
